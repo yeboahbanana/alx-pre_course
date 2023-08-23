@@ -1,1 +1,1 @@
-My first readme
+mastered no bastard
